@@ -12,7 +12,7 @@
 
 -# 𝑺𝒉𝒆/𝑯𝒆𝒓 𝒐𝒓 𝒂𝒏𝒚 𝒑𝒓𝒐𝒖𝒏𝒐𝒖𝒏𝒔 𝒚𝒐𝒖 𝒘𝒐𝒖𝒍𝒅 𝒍𝒊𝒌𝒆 𝒕𝒐 𝒄𝒂𝒍𝒍 𝒎𝒆 ^^
 
-<img align="right" width="300" height="300" src="https://files.catbox.moe/w03du3.jpeg">
+<img align="right" width="200" height="200" src="https://files.catbox.moe/w03du3.jpeg">
 
 -# 𝑴𝒚 𝒑𝒆𝒓𝒔𝒐𝒏𝒂𝒍𝒊𝒕𝒚? 𝒚𝒐𝒖'𝒍𝒍 𝒅𝒆𝒔𝒄𝒓𝒊𝒃𝒆 𝒎𝒆 !
  𝒃𝒖𝒕 𝒊𝒇 𝒚𝒐𝒖'𝒍𝒍 𝒂𝒔𝒌 𝒎𝒆, 𝒊 𝒕𝒉𝒊𝒏𝒌 𝒊 𝒘𝒐𝒖𝒍𝒅 𝒃𝒆 𝒌𝒊𝒏𝒅, 𝒇𝒓𝒊𝒆𝒏𝒅𝒍𝒚, 𝒆𝒕𝒄 !
