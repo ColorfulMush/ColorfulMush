@@ -3,7 +3,7 @@
  
  -# 𝑹𝒆𝒇𝒆𝒓 𝒎𝒆 𝒂𝒔 𝑴𝒖𝒔𝒉 ! 𝒐𝒓 𝒆𝒊𝒕𝒉𝒆𝒓 𝑵𝒂𝒈𝒊:)
 
-<img align="left" width="300" height="auto" src="https://files.catbox.moe/f0qsgc.jpeg">
+<img align="left" width="200" height="auto" src="https://files.catbox.moe/f0qsgc.jpeg">
 
 -# 𝑰 𝒍𝒊𝒌𝒆 𝒃𝒍𝒖𝒆𝒍𝒐𝒄𝒌, 𝒑𝒐𝒏𝒚𝒕𝒐𝒘𝒏, 𝒓𝒐𝒃𝒍𝒐𝒙, 𝒂𝒏𝒅 𝒔𝒐𝒎𝒆𝒕𝒊𝒎𝒆𝒔 𝒆𝒗𝒆𝒏 𝒔𝒊𝒏𝒈𝒊𝒏𝒈 ! 
   𝑨𝒍𝒔𝒐 𝒂 𝒎𝒖𝒍𝒕𝒊𝒇𝒂𝒏𝒅𝒐𝒎 𝒇𝒆𝒍𝒍𝒂:)
