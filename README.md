@@ -26,20 +26,20 @@
 
 
    DNI LIST; 
-   saerin shippers
-   flirters [even joke.] 
-   tut skins
-   kaisagi shippers
-   proshippers
-   ppl that messes w my friends
-   sexual ponies
+   saerin shippers,
+   flirters [even joke.] ,
+   tut skins,
+   kaisagi shippers,
+   proshippers,
+   ppl that messes w my friends,
+   sexual ponies.
    
    INT LIST;
-   bllk fans
-   pjsk fans
-   laufey fans
-   colorful ponies
-   NON - dry texters
+   bllk fans,
+   pjsk fans,
+   laufey fans,
+   colorful ponies,
+   NON - dry texters,
    friends ofc haha laughs
    
    
