@@ -23,3 +23,23 @@
 
  -# 𝑬𝑿𝑻𝑹𝑨𝑨𝑺𝑺𝑺 ! ! ! ; 𝒏𝒂𝒈𝒊 𝒊𝒔 𝒎𝒚 𝒇𝒂𝒗𝒐𝒓𝒊𝒕𝒆 𝒄𝒉𝒂𝒓𝒂𝒄𝒕𝒆𝒓 𝒊𝒏 𝒃𝒍𝒖𝒆 𝒍𝒐𝒄𝒌 :𝑫 𝑨𝒏𝒐𝒕𝒉𝒆𝒓 𝒐𝒏𝒆 𝒊𝒔 𝒂𝒌𝒊𝒕𝒐 𝒇𝒓𝒐𝒎 𝒑𝒓𝒐𝒋𝒆𝒄𝒕 𝒔𝒆𝒌𝒂𝒊𝒊 ! ! !
    𝒑𝒍𝒔 𝒊𝒏𝒕 𝒊𝒇 𝒚𝒐𝒖 𝒉𝒂𝒗𝒆 𝒕𝒉𝒆 𝒔𝒂𝒎𝒆 𝒊𝒏𝒕𝒆𝒓𝒆𝒔𝒕𝒔 𝒂𝒔 𝒎𝒆 𝒍𝒎𝒂𝒐
+
+
+   DNI LIST; 
+   saerin shippers
+   flirters [even joke.] 
+   tut skins
+   kaisagi shippers
+   proshippers
+   ppl that messes w my friends
+   sexual ponies
+   
+   INT LIST;
+   bllk fans
+   pjsk fans
+   laufey fans
+   colorful ponies
+   NON - dry texters
+   friends ofc haha laughs
+   
+   
