@@ -40,6 +40,7 @@
    laufey fans,
    colorful ponies,
    NON - dry texters,
+   YORU AND AKITO LOVERS. 
    friends ofc haha laughs
    
    
