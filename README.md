@@ -25,20 +25,25 @@
    𝒑𝒍𝒔 𝒊𝒏𝒕 𝒊𝒇 𝒚𝒐𝒖 𝒉𝒂𝒗𝒆 𝒕𝒉𝒆 𝒔𝒂𝒎𝒆 𝒊𝒏𝒕𝒆𝒓𝒆𝒔𝒕𝒔 𝒂𝒔 𝒎𝒆 𝒍𝒎𝒂𝒐
 
 
-   DNI LIST; 
+   DNI LIST;
+   
    saerin shippers,
    flirters [even joke.] ,
    tut skins,
    kaisagi shippers,
    proshippers,
+   toxic, 
    ppl that messes w my friends,
    sexual ponies.
    
    INT LIST;
+
+  
    bllk fans,
    pjsk fans,
    laufey fans,
    colorful ponies,
+   friendly ppl
    NON - dry texters,
    YORU AND AKITO LOVERS. 
    friends ofc haha laughs
