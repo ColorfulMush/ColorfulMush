@@ -3,7 +3,7 @@
  
  -# 𝑹𝒆𝒇𝒆𝒓 𝒎𝒆 𝒂𝒔 𝑴𝒖𝒔𝒉 ! 𝒐𝒓 𝒆𝒊𝒕𝒉𝒆𝒓 𝑵𝒂𝒈𝒊:)
 
-<img align="left" width="300" height="auto" src="https://files.catbox.moe/f0qsgc.jpeg">
+<img align="left" width="200" height="auto" src="https://files.catbox.moe/f0qsgc.jpeg">
 
 -# 𝑰 𝒍𝒊𝒌𝒆 𝒃𝒍𝒖𝒆𝒍𝒐𝒄𝒌, 𝒑𝒐𝒏𝒚𝒕𝒐𝒘𝒏, 𝒓𝒐𝒃𝒍𝒐𝒙, 𝒂𝒏𝒅 𝒔𝒐𝒎𝒆𝒕𝒊𝒎𝒆𝒔 𝒆𝒗𝒆𝒏 𝒔𝒊𝒏𝒈𝒊𝒏𝒈 ! 
   𝑨𝒍𝒔𝒐 𝒂 𝒎𝒖𝒍𝒕𝒊𝒇𝒂𝒏𝒅𝒐𝒎 𝒇𝒆𝒍𝒍𝒂:)
@@ -12,7 +12,7 @@
 
 -# 𝑺𝒉𝒆/𝑯𝒆𝒓 𝒐𝒓 𝒂𝒏𝒚 𝒑𝒓𝒐𝒖𝒏𝒐𝒖𝒏𝒔 𝒚𝒐𝒖 𝒘𝒐𝒖𝒍𝒅 𝒍𝒊𝒌𝒆 𝒕𝒐 𝒄𝒂𝒍𝒍 𝒎𝒆 ^^
 
-<img align="right" width="400" height="auto" src="https://files.catbox.moe/w03du3.jpeg">
+<img align="right" width="200" height="auto" src="https://files.catbox.moe/w03du3.jpeg">
 
  -# 𝑴𝒚 𝒑𝒆𝒓𝒔𝒐𝒏𝒂𝒍𝒊𝒕𝒚? 𝒚𝒐𝒖'𝒍𝒍 𝒅𝒆𝒔𝒄𝒓𝒊𝒃𝒆 𝒎𝒆 !
   𝒃𝒖𝒕 𝒊𝒇 𝒚𝒐𝒖'𝒍𝒍 𝒂𝒔𝒌 𝒎𝒆, 𝒊 𝒕𝒉𝒊𝒏𝒌 𝒊 𝒘𝒐𝒖𝒍𝒅 𝒃𝒆 𝒌𝒊𝒏𝒅, 𝒇𝒓𝒊𝒆𝒏𝒅𝒍𝒚, 𝒆𝒕𝒄 !
