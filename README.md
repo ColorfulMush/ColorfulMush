@@ -1,4 +1,7 @@
 <p align="center">
+ <img src="https://files.catbox.moe/q21mcl.gif" alt="logo"  width="700" height="auto" />
+
+<p align="center">
  <img src="https://files.catbox.moe/qugggn.jpeg" alt="logo"  width="400" height="auto" />
  
  -# 𝑹𝒆𝒇𝒆𝒓 𝒎𝒆 𝒂𝒔 𝑴𝒖𝒔𝒉 ! 𝒐𝒓 𝒆𝒊𝒕𝒉𝒆𝒓 𝑵𝒂𝒈𝒊:)
