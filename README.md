@@ -1,7 +1,7 @@
 <p align="center">
  <img src="https://files.catbox.moe/q21mcl.gif" alt="logo"  width="700" height="auto" />
  
-  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=6997BAA2&center=true&vCenter=true&width=435&lines=Don't+apologize..+Reo.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=6997BAA2&center=true&vCenter=true&width=435&height=90&lines=Thanks+isagi%2C+I'm+the+worlds+best.+)](https://git.io/typing-svg)
 
 <p align="center">
  <img src="https://files.catbox.moe/qugggn.jpeg" alt="logo"  width="400" height="auto" />
