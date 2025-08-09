@@ -1,7 +1,6 @@
 <p align="center">
  <img src="https://files.catbox.moe/q21mcl.gif" alt="logo"  width="700" height="auto" />
-
- <div dir="rtl">متن فارسی</div>
+ 
   [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=6997BAA2&width=435&lines=Why+am+I+so+miserable...%3F+)](https://git.io/typing-svg)
 
 <p align="center">
