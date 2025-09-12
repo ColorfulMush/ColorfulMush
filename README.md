@@ -10,4 +10,4 @@
 
 <img align="left" width="700" height="auto" src="https://files.catbox.moe/a561zg.png">
 
-<img align="right" width="700" height="auto" src="(https://files.catbox.moe/p4i14m.png)">
+<img align="right" width="700" height="auto" src="https://files.catbox.moe/p4i14m.png">
