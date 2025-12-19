@@ -20,7 +20,7 @@
 
 I have anger issues so i might throw it on you  so pls dont take it srsly !
 
-A multishipper, introverted, <ins>kind</ins> of intelligent,
+multishipper, multifandom, introverted, <ins>kind</ins> of intelligent,
 Catlover, etc etc. !!
 
 Fil + Eng . <ins>*Minor*</ins> so i may not feel comfortable around adults except for my friends :P
