@@ -25,7 +25,7 @@ Catlover, etc etc. !!
 
 Fil + Eng . <ins>*Minor*</ins> so i may not feel comfortable around adults except for my friends :P
 
-"Just a girl inlove." . might rant abt crush
+Just a girl inlove . might rant abt crush
 
 
 INT and C+H freely, idm !!
