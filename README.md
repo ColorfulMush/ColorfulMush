@@ -3,8 +3,7 @@
  
  <img align="center" width="500" height="auto" src="https://files.catbox.moe/gsneq1.jpg">
 
-<p align="center">
- <img src="https://files.catbox.moe/76cz89.png" alt="logo"  width="500" height="auto" />
+
  
 <div align="center" 
  
@@ -32,6 +31,9 @@ INT and C+H freely, idm !!
 
 Sign my ata and color my tree plss thxx :)
 
+<p align="center">
+ <img src="https://files.catbox.moe/76cz89.png" alt="logo"  width="500" height="auto" />
+ 
 ![tumblr_fef73f6e41bd21177a19e52d98418cf9_51447432_250](https://github.com/user-attachments/assets/8c9d7d00-6849-46ec-9140-b7ddd5846cb8)
 ![tumblr_a3e3a1cf7f3f1ce79b1bae8f6ce582b9_0e9c701a_250](https://github.com/user-attachments/assets/2e1ebd95-f75d-4f6c-9f1b-f498587382f8)
 ![0071-bi](https://github.com/user-attachments/assets/ba41263d-9cbb-48f5-ba82-674b7000c3fd)
