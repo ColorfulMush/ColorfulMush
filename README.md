@@ -27,7 +27,7 @@ Fil + Eng . <ins>*Minor*</ins> so i may not feel comfortable around adults excep
 Just a girl inlove . might rant abt crush
 
 
-INT and C+H freely, idm !!
+INT and C+H freely, idm unless in dni list:( [gonna rmk the list soon..]
 
 Sign my ata and color my tree plss thxx :) gonna rmk my straw soon!!
 
