@@ -29,7 +29,7 @@ Just a girl inlove . might rant abt crush
 
 INT and C+H freely, idm !!
 
-Sign my ata and color my tree plss thxx :)
+Sign my ata and color my tree plss thxx :) gonna rmk my straw soon!!
 
 <p align="center">
  <img src="https://files.catbox.moe/76cz89.png" alt="logo"  width="500" height="auto" />
