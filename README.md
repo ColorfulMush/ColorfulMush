@@ -45,4 +45,13 @@ Sign my ata and color my tree plss thxx :) gonna rmk my straw soon!!
 ![tumblr_3693e50024cde24ab3e61e7a250e581d_3e711656_250](https://github.com/user-attachments/assets/edfb7422-c391-4ebc-809d-ebac7417db74)
 
 
+<img width="99" height="57" alt="loveme" src="https://github.com/user-attachments/assets/05828f9c-6e9d-47e4-b19b-f69aa4858310" />
+<img width="99" height="56" alt="vsu5vu" src="https://github.com/user-attachments/assets/9b50a828-15a4-42dd-96a0-abddad59f5bb" />
+<img width="99" height="56" alt="d2ws5yr-ced1e739-fe42-40e3-86fc-33e90622b658" src="https://github.com/user-attachments/assets/fe2649e4-b89e-45c9-8942-af9d3ca95ecc" />
+
+![daz7c6y-3a9732e1-a8de-4623-9890-39b4f618321e](https://github.com/user-attachments/assets/5940e5e7-85a0-4ff2-ada5-069b53fff5a3)
+![ezgif-4907c4b43215ba](https://github.com/user-attachments/assets/6b12ee5f-e2c9-4c3f-bb57-5ead3cab8d71)
+![Tumblr-l-315225012519437](https://github.com/user-attachments/assets/08152f8a-ba52-4c0a-b7e5-7fb5fea864c2)
+![IMG-8009](https://github.com/user-attachments/assets/9dba907b-61c3-40a6-ad0e-84bcbae2fca4)
+
 
