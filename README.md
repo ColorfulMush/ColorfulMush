@@ -1,5 +1,10 @@
 <p align="center">
  <img src="https://files.catbox.moe/4wu9oh.png" alt="logo"  width="700" height="auto" /> 
+
+ <div align="center" 
+  
+ ![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2FColorfulMush%2FColorfulMush&label=d3rlord3's%20pickaxes&countColor=%23d9e3f0&style=plastic)
+
  
  <img align="center" width="500" height="auto" src="https://files.catbox.moe/gsneq1.jpg">
 
