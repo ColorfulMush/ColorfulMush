@@ -24,10 +24,12 @@
 
 I have anger issues so i might throw it on you  so pls dont take it srsly !
 
+(more info abt anger issues in [carrd](https://lukakaaa.carrd.co/)!)
+
 multishipper, multifandom, introverted, <ins>kind</ins> of intelligent,
 Catlover, friendly etc etc. !!
 
-Fil + Eng . <ins>*Minor*</ins> so i may not feel comfortable around adults except for my friends :P
+Fil + Eng . Im a <ins>*Minor*</ins> so i may not feel comfortable around adults except for my friends :P
 
 Just a girl inlove . might rant abt crush
 
