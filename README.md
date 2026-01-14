@@ -6,7 +6,7 @@
  ![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2FColorfulMush%2FColorfulMush&label=d3rlord3's%20pickaxes&countColor=%23d9e3f0&style=plastic)
 
  
- <img align="center" width="500" height="auto" src="https://files.catbox.moe/gsneq1.jpg">
+ <img align="center" width="500" height="auto" src="![f06052bc5fc412fb6b483f258004034c](https://github.com/user-attachments/assets/2f44d5eb-e55e-45e0-b2e1-c0f1c87f4d7f)">
 
 
  
