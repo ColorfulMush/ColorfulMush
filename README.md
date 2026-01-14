@@ -10,7 +10,7 @@
  ![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2FColorfulMush%2FColorfulMush&label=d3rlord3's%20pickaxes&countColor=%23d9e3f0&style=plastic)
 
  
-<img width="700" height="auto" alt="IMG-9508" src="https://github.com/user-attachments/assets/483db5d6-87e7-4577-abbc-7e21422d22ad" />
+<img width="600" height="auto" alt="IMG-9508" src="https://github.com/user-attachments/assets/483db5d6-87e7-4577-abbc-7e21422d22ad" />
 
 
 
