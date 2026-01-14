@@ -66,4 +66,9 @@ Sign my ata and color my tree plss thxx :) gonna rmk my straw soon!!
 ![Tumblr-l-315225012519437](https://github.com/user-attachments/assets/08152f8a-ba52-4c0a-b7e5-7fb5fea864c2)
 ![IMG-8009](https://github.com/user-attachments/assets/9dba907b-61c3-40a6-ad0e-84bcbae2fca4)
 
+![IMG_9063](https://github.com/user-attachments/assets/fa2ebaf9-afa0-47bb-83ff-2dcf536369f4)
+
+
+
+
 
