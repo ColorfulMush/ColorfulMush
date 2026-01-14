@@ -34,10 +34,11 @@ I have anger issues so i might throw it on you  so pls dont take it srsly !
 multishipper, multifandom, ambiverted, <ins>kind</ins> of intelligent,
 Catlover, friendly etc etc. !!
 
+if you want to know abt what or who i like, ask me !
+
 Fil + Eng . Im a <ins>*Minor*</ins> so i may not feel comfortable around adults except for my friends :P
 
 Just a girl inlove . might rant abt crush
-
 
 INT and C+H freely, idm unless in dni list:( [gonna rmk the list soon..]
 
