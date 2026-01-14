@@ -44,7 +44,7 @@ INT and C+H freely, idm unless in dni list:( [gonna rmk the list soon..]
 Sign my ata and color my tree plss thxx :) gonna rmk my straw soon!!
 
 <p align="center">
- <img src="https://files.catbox.moe/76cz89.png" alt="logo"  width="500" height="auto" />
+ <img src="https://github.com/user-attachments/assets/45fb1114-c413-4b0b-a703-1225fcd8154a" alt="logo"  width="500" height="auto" />
  
 ![tumblr_fef73f6e41bd21177a19e52d98418cf9_51447432_250](https://github.com/user-attachments/assets/8c9d7d00-6849-46ec-9140-b7ddd5846cb8)
 ![tumblr_a3e3a1cf7f3f1ce79b1bae8f6ce582b9_0e9c701a_250](https://github.com/user-attachments/assets/2e1ebd95-f75d-4f6c-9f1b-f498587382f8)
