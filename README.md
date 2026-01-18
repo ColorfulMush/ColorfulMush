@@ -42,7 +42,7 @@ Just a girl inlove . might rant abt crush
 
 INT and C+H freely, idm unless in dni list:( [gonna rmk the list soon..]
 
-Sign my ata and color my tree plss thxx :) gonna rmk my straw soon!!
+Sign my ata plss thxx :) gonna rmk my straw soon!!
 
 <p align="center">
  <img src="https://github.com/user-attachments/assets/45fb1114-c413-4b0b-a703-1225fcd8154a" alt="logo"  width="500" height="auto" />
