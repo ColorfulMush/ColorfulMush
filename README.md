@@ -25,7 +25,7 @@
 
 « *Mush  ,, Luka !!* »
 
-<ins>She</ins> // Her . <ins>B</ins>i . <ins>Borea</ins>romantic + <ins>Placio</ins>romantic
+<ins>She</ins> // Her . <ins>B</ins>i . <ins>recipro</ins>romantic + <ins>Placio</ins>romantic
 
 I have anger issues so i might throw it on you  so pls dont take it srsly !
 
