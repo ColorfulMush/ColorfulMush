@@ -14,7 +14,13 @@
 
 <img align="left" width="500" length="auto" src="https://files.catbox.moe/s25zc6.png">
 
-<img width="20" height="20" alt="y62" src="https://github.com/user-attachments/assets/8c38e1be-a668-496b-abe0-0a0dd3b089c2" /> / Mush ᵒʳ Derek !! <img width="20" height="20" alt="mini-gifs88" src="https://github.com/user-attachments/assets/afd4b098-33d5-4bb4-a5ca-4072df0ecbe3" /> ˙.• ,° ✧ (≧∇≦) !? 
+𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡
 
-5teen ! github in WIP
+ **until next time, friend.**
+ > whatever you do at the crossroads, keep going forward . . <img width="20" height="20" alt="jas6dp" src="https://github.com/user-attachments/assets/775be960-7ad7-4f87-a315-fe2889c181ba" />
+
+<img width="20" height="20" alt="4bdb89b2-original" src="https://github.com/user-attachments/assets/6f363a84-a271-4b2f-aa12-bec36e1ee524" /> <ins>M</ins>ush ᴏʀ <ins>D</ins>3rLord3 . . . <img width="20" height="20" alt="odkei8" src="https://github.com/user-attachments/assets/53301fe6-73c1-4887-a196-ddd351f8b2e6" /> : she / her / they : ˙.• ,° ✧ (≧∇≦) ! <img width="22" height="23" alt="image" src="https://github.com/user-attachments/assets/bc937cc3-7b47-4506-95f8-ed634cdeb6a7" />
+
+
+
 <br clear="left" />
