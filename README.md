@@ -33,5 +33,8 @@
   <img width="20" height="20" alt="red96" src="https://github.com/user-attachments/assets/8d2a3411-deb5-4781-be2c-fe06cb1b3d27" /> (^▽^) ! IN<ins>F</ins>P ,, 5teen!! ::  very multifandom !! .. ˙ ,  <img width="20" height="20" alt="red101" src="https://github.com/user-attachments/assets/b7a19ddc-a939-4424-b9ad-2d62d8a94b58" /> 
 </p>
 
+> . . or something like that . . (i was never really good with endings) <img width="20" height="20" alt="red22" src="https://github.com/user-attachments/assets/bde39175-762a-4003-b6bc-4710077bb841" />
+
+
   <img width="30" height="23" alt="7kef4i" src="https://github.com/user-attachments/assets/d0c5211c-c35a-42af-aae0-593954b6ac95" /> ·˚ ༘₊· ͟͟͞͞꒰➳ " ***i***t's ***t***oo ***l***ittle . . ***w***ay ***t***oo ***late***. . " .. </3 , <img width="30" height="23" alt="u1huo2" src="https://github.com/user-attachments/assets/6732a33d-cee2-4917-a6c5-855a9bbb59c6" />
 <br clear="left" />
