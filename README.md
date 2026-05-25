@@ -8,8 +8,10 @@
   <img src="https://files.catbox.moe/yp6zx6.png" alt="Description" width="1000" length="auto">
 </p>
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Noto+Serif&duration=4000&pause=1000&color=CC0000&center=true&width=435&lines=%22+Avery+.+.+.+%22;%22+you+look+so+sweet+.+.+%22;%22+the+thought+of+you+.+.+is+killing+me+.+.+%22;%22+Avery+my+dear+.+.+come+and+find+me+.+.+%22;%22+beyond+.+.+the+gates+.+.+is+where+ill+be+.+%22)](https://git.io/typing-svg)"/></a>
-  
+<p align="center">
+  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Noto+Serif&duration=4000&pause=1000&color=CC0000&center=true&width=435&lines=%22+Avery+.+.+.+%22;%22+you+look+so+sweet+.+.+%22;%22+the+thought+of+you+.+.+is+killing+me+.+.+%22;%22+Avery+my+dear+.+.+come+and+find+me+.+.+%22;%22+beyond+.+.+the+gates+.+.+is+where+ill+be+.+%22" alt="Typing SVG" /></a>
+</p>
+
 <p align="center">
    ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 </p>
