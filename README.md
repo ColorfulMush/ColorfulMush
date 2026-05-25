@@ -20,9 +20,9 @@
 
 
 𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟
-
- **" until next time , friend . "**
-
+<p align="center"
+  " until next time , friend . "
+</p>
 
 > . . whatever you do at the crossroads, keep going forward . . <img width="20" height="20" alt="jas6dp" src="https://github.com/user-attachments/assets/775be960-7ad7-4f87-a315-fe2889c181ba" />
 
