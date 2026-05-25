@@ -12,9 +12,10 @@
    ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 </p>
 
-<img align="left" width="500" length="auto" src="https://files.catbox.moe/s25zc6.png">
+<img align="left" width="400" length="auto" src="https://files.catbox.moe/s25zc6.png">
 
 𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟
+
  **until next time, friend.**
  
  > whatever you do at the crossroads, keep going forward . . <img width="20" height="20" alt="jas6dp" src="https://github.com/user-attachments/assets/775be960-7ad7-4f87-a315-fe2889c181ba" />
