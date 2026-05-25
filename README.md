@@ -1,6 +1,10 @@
 <img width="15000" height="auto" alt="image" src="https://github.com/user-attachments/assets/75a0c83a-f0eb-4e10-9c5e-4f3b6a69291e" />
 
 <p align="center">
+  <a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2FColorfulMush"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2FColorfulMush&label=Enchanted%20Pickaxes&countColor=%23F47373&style=plastic" /></a>
+</p>
+
+<p align="center">
    ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 </p>
 
