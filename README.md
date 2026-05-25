@@ -16,7 +16,7 @@
 
 𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟
 
- **until next time, friend.**
+ **" until next time , friend . "**
  > whatever you do at the crossroads, keep going forward . . <img width="20" height="20" alt="jas6dp" src="https://github.com/user-attachments/assets/775be960-7ad7-4f87-a315-fe2889c181ba" />
 
 <img width="20" height="20" alt="4bdb89b2-original" src="https://github.com/user-attachments/assets/6f363a84-a271-4b2f-aa12-bec36e1ee524" /> <ins>M</ins>ush ᴏʀ <ins>D</ins>3rLord3 . . . <img width="20" height="20" alt="odkei8" src="https://github.com/user-attachments/assets/53301fe6-73c1-4887-a196-ddd351f8b2e6" /> : she / her / they : ˙.• ,° ✧ (≧∇≦) ! <img width="22" height="23" alt="image" src="https://github.com/user-attachments/assets/bc937cc3-7b47-4506-95f8-ed634cdeb6a7" />
