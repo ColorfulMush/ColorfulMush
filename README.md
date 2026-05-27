@@ -64,7 +64,7 @@
 
 
 <p align="center">
-  <img width="20" height="20" alt="5j75g2" src="https://github.com/user-attachments/assets/832accf3-5ae8-4369-936b-cc9a81308e28" /> ⋮ ⌗ ┆ SEMI-IN FANDOMS : ddlc , little nightmares , TAWOG , demon slayer , fnaf , undertale , deltarune , fpe , sonic boom + sonic games etc.
+  <img width="20" height="20" alt="5j75g2" src="https://github.com/user-attachments/assets/832accf3-5ae8-4369-936b-cc9a81308e28" /> ⋮ ⌗ ┆ SEMI-IN FANDOMS : ddlc , little nightmares , TAWOG , demon slayer , fnaf , undertale , deltarune , fpe , sonic boom + sonic games , jjk etc.
 </p>
 
 > . . How can i move *forward* . . when you're not there . . ? <img width="20" height="20" alt="g72" src="https://github.com/user-attachments/assets/51eca083-eb94-40aa-913d-b6976011be4b" />
