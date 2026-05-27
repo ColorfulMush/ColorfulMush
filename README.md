@@ -64,14 +64,14 @@
 </p>
 
 
-<img width="20" height="20" alt="g59" src="https://github.com/user-attachments/assets/f59cbd71-9c7f-47fa-926f-5e49c6fd0a73" /> ⋮ ⌗ ┆ COMMON FANDOM LIST : **SF/DAWTDE** , **E:TM** , **ALNST** , **PJSK** **EXPEDITION** (mental health game from roblox) , bllk , mcyt , haikyuu , fnf , greek myth , krew etc.
+<img width="20" height="20" alt="g59" src="https://github.com/user-attachments/assets/f59cbd71-9c7f-47fa-926f-5e49c6fd0a73" /> ⋮ ⌗ ┆ COMMON FANDOM LIST : **SF/DAWTDE** , **E:TM** , **ALNST** , **PJSK** , **EXPEDITION** (mental health game from roblox) , bllk , mcyt , haikyuu , fnf , greek myth , krew , why is love + more roblox psychological horror games , roblox args , dw etc.
 
 
 <p align="center">
-  <img width="20" height="20" alt="5j75g2" src="https://github.com/user-attachments/assets/832accf3-5ae8-4369-936b-cc9a81308e28" /> ⋮ ⌗ ┆ SEMI-IN FANDOMS : ddlc , little nightmares , TAWOG , demon slayer , fnaf etc.
+  <img width="20" height="20" alt="5j75g2" src="https://github.com/user-attachments/assets/832accf3-5ae8-4369-936b-cc9a81308e28" /> ⋮ ⌗ ┆ SEMI-IN FANDOMS : ddlc , little nightmares , TAWOG , demon slayer , fnaf , undertale , deltarune , fpe , sonic boom + sonic games etc.
 </p>
 
-> . . How can i move *forward* . . when youre not there . . ? <img width="20" height="20" alt="g72" src="https://github.com/user-attachments/assets/51eca083-eb94-40aa-913d-b6976011be4b" />
+> . . How can i move *forward* . . when your'e not there . . ? <img width="20" height="20" alt="g72" src="https://github.com/user-attachments/assets/51eca083-eb94-40aa-913d-b6976011be4b" />
 
 <img width="20" height="20" alt="g13" src="https://github.com/user-attachments/assets/27f39906-63b3-458f-bd5a-2af8c1ecd073" /> ˚ ༘₊· ͟͟͞͞꒰➳ " <ins>***I*** ***k***now ***t***hat ***i***m ***r***eal , ***b***ut ***w***hy ***c***all ***me*** ***special***</ins> . . ? " .. </3 <img width="20" height="20" alt="g30" src="https://github.com/user-attachments/assets/5c6d1a70-ba57-4d1e-9653-388c8ae424a1" />
 <br clear="right" />
