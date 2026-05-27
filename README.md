@@ -34,16 +34,14 @@
 </p>
 
 <p align="center">
-  <img width="20" height="20" alt="red96" src="https://github.com/user-attachments/assets/8d2a3411-deb5-4781-be2c-fe06cb1b3d27" /> (^▽^) ! IN<ins>F</ins>P ,, 5teen!! ::  very multifandom !! .. ˙ ,  <img width="20" height="20" alt="red101" src="https://github.com/user-attachments/assets/b7a19ddc-a939-4424-b9ad-2d62d8a94b58" /> 
+  <img width="20" height="20" alt="red96" src="https://github.com/user-attachments/assets/8d2a3411-deb5-4781-be2c-fe06cb1b3d27" /> (^▽^) ! IN<ins>F</ins>P ,, 5teen!! :: I am D3rLord3 yes !! .. ˙ ,  <img width="20" height="20" alt="red101" src="https://github.com/user-attachments/assets/b7a19ddc-a939-4424-b9ad-2d62d8a94b58" /> 
 </p>
 
 <p align="center">
   <img width="20" height="20" alt="red99" src="https://github.com/user-attachments/assets/055ac49c-4c77-4096-98b6-56cf9737408e" /> . <ins>Bi</ins>sexual ! ;; Placioromantic + Recipromantic (sometimes..) . . <img width="20" height="20" alt="red145" src="https://github.com/user-attachments/assets/4fd04014-e80f-49c1-9d64-4fd69268698d" />
 </p>
 
-<p align="center">
-  NOTE: i have hypersexuality.. ok? ˊᴖˋ :: ! ! <img width="20" height="20" alt="tumblr-6fde13c37719cc777ea64759e123fe6b-88f03293-1280" src="https://github.com/user-attachments/assets/2716ac6b-6ace-4329-940b-eae1695570f2" />
-</p>
+  NOTE: i have hypersexuality.. ok? so any mentions of ~~NSFW~~ will trigger me alot . . please avoid doing so !ˊᴖˋ :: ! ! <img width="20" height="20" alt="tumblr-6fde13c37719cc777ea64759e123fe6b-88f03293-1280" src="https://github.com/user-attachments/assets/2716ac6b-6ace-4329-940b-eae1695570f2" />
 
 
 > . . or something like that . . (i was never really good with endings) <img width="20" height="20" alt="red22" src="https://github.com/user-attachments/assets/bde39175-762a-4003-b6bc-4710077bb841" />
@@ -62,7 +60,8 @@
 
 <img width="20" height="20" alt="tumblr-8bc194acb0d2b14a9bfe507e6aa46532-fe9aa705-75" src="https://github.com/user-attachments/assets/f6476cbd-7fd8-405c-870a-04d2ff6dcd3c"> BYI : I have mood swings that affects my behavior around people . . and can cause me to be dry, or in-general non/semi-verbal unless trusted friends, i also have BPD meaning that i often struggle with a ***deep*** fear of abandonment and more . . :: <img width="20" height="20" alt="9370a83d" src="https://github.com/user-attachments/assets/bcecaf56-ae34-4ea2-9aff-eabad0dd2364" />
 
-
+> NOTE: my mood swings can be triggered anytime even if its just a small problem, unfortunately i cant always control my mood swings in times i get pissed off
+about something small . . and *you* have to respect it !! :[ (boundaries soon)
 
 <img width="20" height="20" alt="g59" src="https://github.com/user-attachments/assets/f59cbd71-9c7f-47fa-926f-5e49c6fd0a73" /> ⋮ ⌗ ┆ COMMON FANDOM LIST : **SF/DAWTDE** , **E:TM** , **ALNST** , **PJSK** , **EXPEDITION** , bllk , mcyt , haikyuu , fnf , greek myth , krew , why is love + more roblox psychological horror games , roblox args , dw etc.
 
