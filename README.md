@@ -60,7 +60,7 @@
 
 <img width="20" height="20" alt="tumblr-8bc194acb0d2b14a9bfe507e6aa46532-fe9aa705-75" src="https://github.com/user-attachments/assets/f6476cbd-7fd8-405c-870a-04d2ff6dcd3c"> BYI : I have mood swings that affects my behavior around people . . and can cause me to be dry, or in-general non/semi-verbal, i also have BPD meaning that i often struggle with a ***deep*** fear of abandonment and more . . :: <img width="20" height="20" alt="9370a83d" src="https://github.com/user-attachments/assets/bcecaf56-ae34-4ea2-9aff-eabad0dd2364" />
 
-<img width="20" height="20" alt="g59" src="https://github.com/user-attachments/assets/f59cbd71-9c7f-47fa-926f-5e49c6fd0a73" /> ⋮ ⌗ ┆ COMMON FANDOM LIST : **SF/DAWTDE** , **E:TM** , **ALNST** , **PJSK** , **EXPEDITION** , bllk , mcyt , haikyuu , fnf , greek myth , krew , why is love + more roblox psychological horror games , roblox args , dw etc.
+<img width="20" height="20" alt="g59" src="https://github.com/user-attachments/assets/f59cbd71-9c7f-47fa-926f-5e49c6fd0a73" /> ⋮ ⌗ ┆ COMMON FANDOM LIST : **SF/DAWTDE** , **E:TM** , **ALNST** , **PJSK** , **EXPEDITION** , bllk , mcyt , haikyuu , fnf , greek myth , krew , why is love + more roblox psychological horror games , roblox + mc args , dw etc.
 
 
 <p align="center">
