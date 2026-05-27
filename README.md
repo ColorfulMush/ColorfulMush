@@ -58,10 +58,7 @@
 **" Dear Lord, D3rlord3. "**
 > I read your letter . . it hurt my soul . . <img width="18" height="18" alt="f6ec6ae2" src="https://github.com/user-attachments/assets/fc48ee69-8e55-4205-8644-38fef86066be" />
 
-<img width="20" height="20" alt="tumblr-8bc194acb0d2b14a9bfe507e6aa46532-fe9aa705-75" src="https://github.com/user-attachments/assets/f6476cbd-7fd8-405c-870a-04d2ff6dcd3c"> BYI : I have mood swings that affects my behavior around people . . and can cause me to be dry, or in-general non/semi-verbal unless trusted friends, i also have BPD meaning that i often struggle with a ***deep*** fear of abandonment and more . . :: <img width="20" height="20" alt="9370a83d" src="https://github.com/user-attachments/assets/bcecaf56-ae34-4ea2-9aff-eabad0dd2364" />
-
-> NOTE: my mood swings can be triggered anytime even if its just a small problem, unfortunately i cant always control my mood swings in times i get pissed off
-about something small . . and *you* have to respect it !! :[ (boundaries soon)
+<img width="20" height="20" alt="tumblr-8bc194acb0d2b14a9bfe507e6aa46532-fe9aa705-75" src="https://github.com/user-attachments/assets/f6476cbd-7fd8-405c-870a-04d2ff6dcd3c"> BYI : I have mood swings that affects my behavior around people . . and can cause me to be dry, or in-general non/semi-verbal, i also have BPD meaning that i often struggle with a ***deep*** fear of abandonment and more . . :: <img width="20" height="20" alt="9370a83d" src="https://github.com/user-attachments/assets/bcecaf56-ae34-4ea2-9aff-eabad0dd2364" />
 
 <img width="20" height="20" alt="g59" src="https://github.com/user-attachments/assets/f59cbd71-9c7f-47fa-926f-5e49c6fd0a73" /> ⋮ ⌗ ┆ COMMON FANDOM LIST : **SF/DAWTDE** , **E:TM** , **ALNST** , **PJSK** , **EXPEDITION** , bllk , mcyt , haikyuu , fnf , greek myth , krew , why is love + more roblox psychological horror games , roblox args , dw etc.
 
@@ -70,7 +67,7 @@ about something small . . and *you* have to respect it !! :[ (boundaries soon)
   <img width="20" height="20" alt="5j75g2" src="https://github.com/user-attachments/assets/832accf3-5ae8-4369-936b-cc9a81308e28" /> ⋮ ⌗ ┆ SEMI-IN FANDOMS : ddlc , little nightmares , TAWOG , demon slayer , fnaf , undertale , deltarune , fpe , sonic boom + sonic games etc.
 </p>
 
-> . . How can i move *forward* . . when your'e not there . . ? <img width="20" height="20" alt="g72" src="https://github.com/user-attachments/assets/51eca083-eb94-40aa-913d-b6976011be4b" />
+> . . How can i move *forward* . . when you're not there . . ? <img width="20" height="20" alt="g72" src="https://github.com/user-attachments/assets/51eca083-eb94-40aa-913d-b6976011be4b" />
 
 <img width="20" height="20" alt="g13" src="https://github.com/user-attachments/assets/27f39906-63b3-458f-bd5a-2af8c1ecd073" /> ˚ ༘₊· ͟͟͞͞꒰➳ " <ins>***I*** ***k***now ***t***hat ***i***m ***r***eal , ***b***ut ***w***hy ***c***all ***me*** ***special***</ins> . . ? " .. </3 <img width="20" height="20" alt="g30" src="https://github.com/user-attachments/assets/5c6d1a70-ba57-4d1e-9653-388c8ae424a1" />
 <br clear="right" />
