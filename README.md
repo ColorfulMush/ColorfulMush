@@ -41,7 +41,7 @@
   <img width="20" height="20" alt="red99" src="https://github.com/user-attachments/assets/055ac49c-4c77-4096-98b6-56cf9737408e" /> . <ins>Bi</ins>sexual ! ;; Placioromantic + Recipromantic (sometimes..) . . <img width="20" height="20" alt="red145" src="https://github.com/user-attachments/assets/4fd04014-e80f-49c1-9d64-4fd69268698d" />
 </p>
 
-  NOTE: i have hypersexuality.. ok? so any mentions of ~~NSFW~~ will trigger me alot . . please avoid doing so !ˊᴖˋ :: ! ! <img width="20" height="20" alt="tumblr-6fde13c37719cc777ea64759e123fe6b-88f03293-1280" src="https://github.com/user-attachments/assets/2716ac6b-6ace-4329-940b-eae1695570f2" />
+  NOTE: i have hypersexuality.. ok? so any mentions of ~~NSFW~~ will trigger me alot sumtimes . . please avoid doing so !ˊᴖˋ :: ! ! <img width="20" height="20" alt="tumblr-6fde13c37719cc777ea64759e123fe6b-88f03293-1280" src="https://github.com/user-attachments/assets/2716ac6b-6ace-4329-940b-eae1695570f2" />
 
 
 > . . or something like that . . (i was never really good with endings) <img width="20" height="20" alt="red22" src="https://github.com/user-attachments/assets/bde39175-762a-4003-b6bc-4710077bb841" />
