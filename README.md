@@ -77,7 +77,7 @@
 </p>
 
 <p align="center">
-   <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=4000&pause=1000&color=22F793&center=true&width=435&lines=%22+I+SAW+YOU+RIGHT+THERE+!+%22;%22+RIGHT+THERE+ON+MY+SCREEN+!+%22;%22+THEN+YOU+ASKED+ME+.+.+%22;%22+WHATS+IN+MY+INVENTORY+!+%22;%22+THEN+THE+NEXT+I+KNEW+.+.+%22;%22+I'D+JUST+DIED+IN+GAME+!+%22;%22+then+i+.+.+%22;%22+looked+at+the+window+and+.+.+%22;%22+fireworks+came+.+.+%22" alt="Typing SVG" /></a>
+   <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Saira&duration=3000&pause=1500&color=00CC21&width=560&height=100&lines=%22+I+SAW+YOU+RIGHT+THERE!+RIGHT+THERE+ON+MY+SCREEN+!+%22;%22+THEN+YOU+ASKED+ME+WHATS+IN+MY+INVENTORY!+%22;%22+THEN+THE+NEXT+I+KNEW+I'D+JUST+DIED+INGAME+!+and+i.+.+%22;%22+looked+at+the+window+and+fireworks+came+.+.+%22" alt="Typing SVG" /></a>
 </p>
 
 
