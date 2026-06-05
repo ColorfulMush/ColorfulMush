@@ -34,7 +34,7 @@
 </p>
 
 <p align="center">
-  <img width="20" height="20" alt="red96" src="https://github.com/user-attachments/assets/8d2a3411-deb5-4781-be2c-fe06cb1b3d27" /> (^▽^) ! IN<ins>F</ins>P ,, 5teen!! :: Mostly offtab in pt! perfectionist .. ˙   <img width="20" height="20" alt="red101" src="https://github.com/user-attachments/assets/b7a19ddc-a939-4424-b9ad-2d62d8a94b58" /> 
+  <img width="20" height="20" alt="red96" src="https://github.com/user-attachments/assets/8d2a3411-deb5-4781-be2c-fe06cb1b3d27" /> (^▽^) ! IN<ins>F</ins>P ,, 5teen!! :: PONY TOWN'S [D3RLORD3](https://github.com/title-town) !! .. ˙   <img width="20" height="20" alt="red101" src="https://github.com/user-attachments/assets/b7a19ddc-a939-4424-b9ad-2d62d8a94b58" /> 
 </p>
 
 <p align="center">
