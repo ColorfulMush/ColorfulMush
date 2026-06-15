@@ -60,10 +60,8 @@
 
 <img width="20" height="20" alt="g59" src="https://github.com/user-attachments/assets/f59cbd71-9c7f-47fa-926f-5e49c6fd0a73" /> ⋮ ⌗ ┆ COMMON FANDOM LIST : **SF/DAWTDE** , **LAUVER** , **E:TM** , **ALNST** , **PJSK** , **EXPEDITION** , bllk , mcyt , haikyuu , fnf , greek myth , krew , why is love + more roblox psychological horror games , roblox + mc args , dw etc.
 
+<img width="20" height="20" alt="5j75g2" src="https://github.com/user-attachments/assets/832accf3-5ae8-4369-936b-cc9a81308e28" /> ⋮ ⌗ ┆ DNI : [basic dni criteria](https://basicdnii.carrd.co/#s2) , pro/com/darkshippers , constant boundary breakers , harassers , immature ppl , toxic , homo/trans/xeno/ilamophobes , misogyny , racist , sexist, pedos etc.
 
-<p align="center">
-  <img width="20" height="20" alt="5j75g2" src="https://github.com/user-attachments/assets/832accf3-5ae8-4369-936b-cc9a81308e28" /> ⋮ ⌗ ┆ SEMI-IN FANDOMS : ddlc , little nightmares , TAWOG , demon slayer , fnaf , undertale , deltarune , fpe , sonic boom + sonic games , jjk , tlg , crk , soul knight etc.
-</p>
 
 > . . How can i move *forward* . . when you're not there . . ? <img width="20" height="20" alt="g72" src="https://github.com/user-attachments/assets/51eca083-eb94-40aa-913d-b6976011be4b" />
 
