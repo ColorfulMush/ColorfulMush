@@ -33,7 +33,7 @@
   <img width="20" height="20" alt="4bdb89b2-original" src="https://github.com/user-attachments/assets/6f363a84-a271-4b2f-aa12-bec36e1ee524" /> <ins>𝕄</ins>ush ᴏʀ <ins>𝔻</ins>3rLord3 . . . <img width="20" height="20" alt="odkei8" src="https://github.com/user-attachments/assets/53301fe6-73c1-4887-a196-ddd351f8b2e6" /> : she / her / they : ˙.• ,° ✧ (≧∇≦) ! <img width="22" height="23" alt="image" src="https://github.com/user-attachments/assets/bc937cc3-7b47-4506-95f8-ed634cdeb6a7" />
 </p>
 
-<img width="20" height="20" alt="red96" src="https://github.com/user-attachments/assets/8d2a3411-deb5-4781-be2c-fe06cb1b3d27" /> (^▽^) ! IN<ins>F</ins>P ,, 5teen!! :: pony town's [d3rlord3](https://github.com/title-town) !! .. ˙   <img width="20" height="20" alt="red101" src="https://github.com/user-attachments/assets/b7a19ddc-a939-4424-b9ad-2d62d8a94b58" /> 
+<img width="20" height="20" alt="red96" src="https://github.com/user-attachments/assets/8d2a3411-deb5-4781-be2c-fe06cb1b3d27" /> (^▽^) ! IN<ins>F</ins>P ,, 5teen!! :: nonsharing scrapper yume !! .. ˙   <img width="20" height="20" alt="red101" src="https://github.com/user-attachments/assets/b7a19ddc-a939-4424-b9ad-2d62d8a94b58" /> 
 
 <p align="center">
   <img width="20" height="20" alt="red99" src="https://github.com/user-attachments/assets/055ac49c-4c77-4096-98b6-56cf9737408e" /> . <ins>Bi</ins>sexual ! ;; Placioromantic + Recipromantic (sometimes..) . . <img width="20" height="20" alt="red145" src="https://github.com/user-attachments/assets/4fd04014-e80f-49c1-9d64-4fd69268698d" />
